@@ -1,0 +1,1 @@
+# The-Weak-Black-Hole-Mechanism-for-Galactic-Collisions-Testing--MagnetGate-Against-Dark-Halo-Paradigm
